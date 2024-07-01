@@ -8,6 +8,10 @@
 
 ㅤㅤㅤㅤ☻ㅤㅤㅤGENSHIN UID 708934711
 
+<p align="center">
+<img src=https://github.com/impostorTV/IMPOSTORTV/assets/171691477/86a94209-2136-4027-bcb2-0f139fc18965 alt="animated" />
+</p> 
+
 ![кафцпфуо](https://github.com/impostorTV/IMPOSTORTV/assets/171691477/c7d568b3-38e9-4d69-bed5-136db08841e9)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 🦔
