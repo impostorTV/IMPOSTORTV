@@ -1,5 +1,4 @@
 😏😏😏😏😏😏😏😏😏😏😏😏😏😏😏😏😏😏😏😏😏😏😏😏😏😏😏😏😏😏😏😏😏😏😏😏😏😏😏😏😏😏😏😏
-![5355](https://github.com/user-attachments/assets/24ddc2e1-7dfc-47a7-af6b-58b28732d3d3)![5355](https://github.com/user-attachments/assets/24ddc2e1-7dfc-47a7-af6b-58b28732d3d3)
 
 <p align="center">
 <img src=https://github.com/impostorTV/IMPOSTORTV/assets/171691477/6dfd40f7-74a7-411c-b32f-d017fd52cf19 alt="animated" />
@@ -33,4 +32,14 @@
 
 <p align="center">
 <img src=https://github.com/impostorTV/IMPOSTORTV/assets/171691477/55e69e66-6b8a-48bc-b44e-68076f3e3f52 alt="animated" />
+</p> 
+
+гиф от дорогой алины...
+
+<p align="center">
+<img src=https://github.com/user-attachments/assets/24ddc2e1-7dfc-47a7-af6b-58b28732d3d3 alt="animated" />
+</p>
+
+<p align="center">
+<img src=https://github.com/user-attachments/assets/24ddc2e1-7dfc-47a7-af6b-58b28732d3d3 alt="animated" />
 </p> 
