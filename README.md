@@ -24,7 +24,10 @@
 
 
 
-![кафцпфуо](https://github.com/impostorTV/IMPOSTORTV/assets/171691477/c7d568b3-38e9-4d69-bed5-136db08841e9)
+<p align="center">
+<img src=https://github.com/user-attachments/assets/d4b438a7-bef6-45a7-868d-66612db87990 />
+</p> 
+
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 🦔
 
