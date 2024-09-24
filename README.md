@@ -48,7 +48,3 @@
 <p align="center">
 <img src=https://github.com/user-attachments/assets/24ddc2e1-7dfc-47a7-af6b-58b28732d3d3 alt="animated" />
 </p>
-
-<p align="center">
-<img src=https://github.com/user-attachments/assets/24ddc2e1-7dfc-47a7-af6b-58b28732d3d3 alt="animated" />
-</p> 
