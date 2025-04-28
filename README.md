@@ -1,4 +1,4 @@
-личная неприязнь к: iiihatemyselllf mmewa SpookybirdSiy bambolinaa 
+личная неприязнь к: iiihatemyselllf mmewa SpookybirdSiy bambolinaa PLSJUSTKILLME 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ♥
 
