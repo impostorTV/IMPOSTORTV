@@ -1,10 +1,14 @@
-личная неприязнь к: iiihatemyselllf mmewa SpookybirdSiy bambolinaa PLSJUSTKILLME 
+<p align="center">
+СМОТРИТЕ КАКУЮ КОММИШКУ НАРИСОВАЛИ С НАШИМИ С АЛЕЙ ПАРНЫМИ ОСКАМИ
+</p> 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ♥
 
 <p align="center">
-<img src=https://github.com/user-attachments/assets/6d3c1635-a0f7-4aa8-a3bc-4e7735a6265c alt="animated" />
+<img src=https://github.com/user-attachments/assets/c58e6e3e-0739-453e-830c-20ecf1c5a713
 </p> 
+
+худ apchuyuji в тг
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ♥
 
