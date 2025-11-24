@@ -1,13 +1,16 @@
 <p align="center">
-ввввыыааааа увааааааа аааааыыыыы хввваааа хввыыыыы  ууаааааа блрблрблрлрблр
+держи меня на расстоянии выстрела . 
+
 </p> 
 
 ﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋
 
 <p align="center">
-<img src=https://github.com/user-attachments/assets/a7a8d63e-1cbc-4fdc-981b-1625cd831ac7 />
+<img src=https://c.tenor.com/JU8G-_8J9dcAAAAd/tenor.gif />
 </p> 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
+
+ваа ааххах хахах мастер оформления
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![GitHub Views](https://komarev.com/ghpvc/?username=impostorTV&color=031631)
